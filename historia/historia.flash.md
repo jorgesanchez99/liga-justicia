@@ -1,0 +1,3 @@
+# Historia de Flash
+
+"Jay" Garrick era un estudiante en el año 1940 (por lo que su nacimiento es ubicado en 1922) quien inhaló una sustancia química, y como resultado de ello recibió súper velocidad y reflejos sobrehumanos. Después de una gran carrera como estrella de fútbol americano se convirtió en Flash usando una camiseta roja con el dibujo de un rayo y un casco de metal con alas (diseño basado en Mercurio), luego de lo cual comenzó a luchar contra el crimen. Jay no necesitaba máscara ya que su cuerpo vibraba a gran velocidad; debido a esto, al tomarle una fotografía, ésta salía borrosa y su rostro no podía distinguirse.
