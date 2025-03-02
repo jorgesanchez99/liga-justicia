@@ -7,5 +7,5 @@
 4. Doomsday
 5. Deadshot
 6. Harley Quin
-7. Robin
+7. 
 
